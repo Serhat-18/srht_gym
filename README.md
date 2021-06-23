@@ -22,4 +22,4 @@ Destek Olmak İçin Discorda Gelebilirsiniz
 
 MADE BY $erhat/18 
 
-discord.gg/tWAxbJqdC6
+https://discord.gg/jmqkY55Ynw
